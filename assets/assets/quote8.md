@@ -1,0 +1,1 @@
+>Same as the mother’s reaction, the attitude of the family towards Little Flower might seem a bit confusing and unclear at first, but by paying close attention we can see that no one in the family really acknowledges her identity.

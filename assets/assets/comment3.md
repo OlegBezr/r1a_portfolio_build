@@ -1,0 +1,1 @@
+My claims started to give more details and focus on new ideas connected with work's interpretation rather than including large observations and making simple implications. I still like the idea of the first claim, it might be improved by going deeper and explaining how mother's fear affects the story overall.
